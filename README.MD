@@ -1,4 +1,4 @@
-​																	beecrowd | 1117
+​																                                      	beecrowd | 1117
 
 # 			  	Validação de Nota
 
